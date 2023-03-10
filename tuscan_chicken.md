@@ -2,7 +2,7 @@
 
 Creamy chicken dish served with potatoes, rice or pasta.
 
-## Ingrediants
+## Ingredients
 
 6 large chicken thighs or breast (skin on)
 2 tbsp plain flour
@@ -23,7 +23,7 @@ cCopped parsley
 ## Method
 
 1. Mix flour, paprika, oregano, salt and pepper in an empty ice-cream tub. Add chicken breasts and toss to coat
-2. Heat a few table sponos of oil from the sundried tomatoes in a large pan over a medium heat and cook the chicken (skin-side down) for 4-5 mins until the skin is golden brown. Turn over and cook for another 4-5 mins until golden on both sides. Remove to a plate and set aside
+2. Heat a few table spoons of oil from the sundried tomatoes in a large pan over a medium heat and cook the chicken (skin-side down) for 4-5 mins until the skin is golden brown. Turn over and cook for another 4-5 mins until golden on both sides. Remove to a plate and set aside
 3. Add the onion and pepper and fry for 4–5 minutes over a medium heat
 4. Add the garlic and fry for 30 seconds, stir in the tomatoes and tomato purée
 5. Pour in wine and cook away the alcohol for a few minutes
@@ -34,10 +34,10 @@ cCopped parsley
 
 Things to improve next time.
 
--Maybe a little bit of chilli flakes in with the flour to give it a bit of a kick
--I used 4 thighs and 3 mini-fillets. The thighs were nice because of the skin, however the  bones are a bit of a pain. Mini-fillets are not good as they cook too quick
--Be more careful with cream next time, add gradually and taste as don't want it too creamy
--Didn't have spinach or parmesan, try next time soo it it improves it
+- Maybe a little bit of chilli flakes in with the flour to give it a bit of a kick
+- I used 4 thighs and 3 mini-fillets. The thighs were nice because of the skin, however the  bones are a bit of a pain. Mini-fillets are not good as they cook too quick
+- Be more careful with cream next time, add gradually and taste as don't want it too creamy
+- Didn't have spinach or parmesan, try next time soo it it improves it
 
 
 ## References
