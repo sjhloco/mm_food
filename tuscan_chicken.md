@@ -42,6 +42,6 @@ Things to improve next time.
 
 ## References
 
-https://www.bbcgoodfood.com/recipes/tuscan-chicken\
-https://www.bbc.co.uk/food/recipes/tuscan_chicken_85727\
+https://www.bbcgoodfood.com/recipes/tuscan-chicken /
+https://www.bbc.co.uk/food/recipes/tuscan_chicken_85727 /
 https://www.kitchensanctuary.com/tuscan-chicken/
